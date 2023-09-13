@@ -31,3 +31,17 @@ Message us: @ m.me/ashirwadcollegeofficial
 Contact Us: 01-4952589 
 Email Us: ashirwad.college1@gmail.com
 Location: Kapoordhara Chowk, Samakhusi, Kathmandu
+
+---
+# Herald College KTM
+> Score a 100% refund on your college fees!
+Our AAA Scholarship - is awarded annually to the top 10% of students with exceptional Academics, Attitude, and Attendance. 
+Other Scholarship Programmes: 
+🎓 ING Postgraduate Scholarship
+For further queries:
+Phone no: 9801022637
+Email: info@heraldcollege.edu.np
+Messenger: m.me/heraldcollegektm
+Address: Naxal Bhagawati Marga, Kathmandu, Nepal
+WhatsApp & Viber - 9801000078
+Website: https://heraldcollege.edu.np/
