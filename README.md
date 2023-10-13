@@ -45,3 +45,27 @@ Messenger: m.me/heraldcollegektm
 Address: Naxal Bhagawati Marga, Kathmandu, Nepal
 WhatsApp & Viber - 9801000078
 Website: https://heraldcollege.edu.np/
+
+---
+# Kanjirowa National Secondary School - Plus 2!
+
+𝐀𝐝𝐦𝐢𝐬𝐬𝐢𝐨𝐧 𝐎𝐩𝐞𝐧 𝐟𝐨𝐫 𝐩𝐥𝐮𝐬𝟐 Science at Kanjirowa National Secondary School - Plus 2!
+𝐋𝐢𝐦𝐢𝐭𝐞𝐝 𝐒𝐞𝐚𝐭𝐬 𝐀𝐯𝐚𝐢𝐥𝐚𝐛𝐥𝐞! 𝐇𝐮𝐫𝐫𝐲 𝐔𝐩!
+Entrance Cum Scholarship Test: Everyday at 11:30 am
+We are 𝐎𝐩𝐞𝐧 𝐟𝐨𝐫 𝐈𝐧𝐪𝐮𝐢𝐫𝐲 & 𝐒𝐜𝐡𝐨𝐨𝐥 𝐕𝐢𝐬𝐢𝐭 Everyday from 8 AM to 4 PM!
+Our Key Offers:
+✔️ German Language
+✔️ Robotics Training 
+✔️ Coding Classes
+𝐔𝐩𝐭𝐨 𝟏𝟎𝟎% 𝐒𝐜𝐡𝐨𝐥𝐚𝐫𝐬𝐡𝐢𝐩 𝐟𝐨𝐫 𝐝𝐞𝐬𝐞𝐫𝐯𝐢𝐧𝐠 𝐬𝐭𝐮𝐝𝐞𝐧𝐭𝐬!
+(Please fill the form and we will call back to explain all the details)
+Online Form 👉 https://ingrails.com/school/admission/form/kanjirowa...
+For further details:
+Kanjirowa National Secondary School
+Koteshwor, Balkumari
+𝐌𝐚𝐧𝐚𝐠𝐞𝐦𝐞𝐧𝐭 - 𝟗𝟖𝟒𝟎𝟎𝟏𝟐𝟒𝟒𝟕
+𝐒𝐜𝐢𝐞𝐧𝐜𝐞 - 𝟗𝟖𝟓𝟏𝟏𝟗𝟗𝟎𝟒𝟒
+01-5100433, 5100479
+www.kanjisl.edu.np
+--
+#Kanjirowa #Session2080 #plus2 #Science #Management
